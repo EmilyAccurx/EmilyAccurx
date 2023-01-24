@@ -5,5 +5,5 @@
 - 💬 Ask me about plants, knitting, anything, data 
 - 📫 How to reach me: slack!
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I dogsit the best dog in the world. 
 
